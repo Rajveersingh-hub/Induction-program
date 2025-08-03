@@ -37,7 +37,7 @@ Looking forward to the rest of the induction program and my journey at GNDEC! ðŸ
 The second day of the induction program began with two proficiency tests:
 
 - **English Proficiency Test** from **9:30 AM to 10:30 AM**, which included grammar, comprehension, and writing sections (letter and email writing).
-- **Mathematics Proficiency Test** from **10:30 AM to 11:30 AM**, covering basic aptitude and topics from classes 11th and 12th such as differentiation, integration, matrices, and differential equations.
+- **Mathematics Proficiency Test** from **10:30 AM to 11:30 AM**, covering basic aptitude and topics from classes 11th and 12th.
 
 After a short break, the following sessions were conducted in the auditorium:
 
