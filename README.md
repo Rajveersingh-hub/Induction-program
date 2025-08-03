@@ -32,4 +32,17 @@ Big thanks to all the faculty members, guests, and organizers for making our fir
 
 Looking forward to the rest of the induction program and my journey at GNDEC! 💻🎓
 
+### Day 2 (1 August 2025)
+
+The second day of the induction program began with two proficiency tests:
+
+- **English Proficiency Test** from **9:30 AM to 10:30 AM**, which included grammar, comprehension, and writing sections (letter and email writing).
+- **Mathematics Proficiency Test** from **10:30 AM to 11:30 AM**, covering basic aptitude and topics from classes 11th and 12th such as differentiation, integration, matrices, and differential equations.
+
+After a short break, the following sessions were conducted in the auditorium:
+
+- **Dr. Arshdeep Singh** delivered an insightful session on the importance of healthy eating and how food impacts physical and mental well-being.
+- The **Buddy4Study** team introduced various scholarship opportunities under the **SATYA Program**, guiding students on how to apply.
+
+The day concluded with a motivating address by the **HOD of Applied Sciences**, who emphasized the importance of attending regular classes and actively participating in college programs.
 
