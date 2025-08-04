@@ -46,3 +46,24 @@ After a short break, the following sessions were conducted in the auditorium:
 
 The day concluded with a motivating address by the **HOD of Applied Sciences**, who emphasized the importance of attending regular classes and actively participating in college programs.
 
+# Day 3 - Induction Program
+
+**Time:** 8:30 AM to 1:30 PM
+
+## 🧪 Dr. Jaswinder Singh – Science & Maths with Hues (8:30 AM – 11:30 AM)
+- Presented interactive and engaging science experiments.
+- Connected physics and maths concepts with real-life applications.
+- Demonstrated creative ways to visualize complex formulas.
+
+## 🎤 Chief Guest: Gurcharan Singh Grewal (11:30 AM)
+- Shared insights on values and responsibilities as a student.
+- Highlighted the importance of ethics in academics and daily life.
+
+## 🌱 Dr. Priya Darshni – Universal Human Values (11:30 AM – 1:30 PM)
+- Discussed core human values like love, peace, and harmony.
+- Encouraged reflection on relationships and self-awareness.
+- Explained how to integrate values into engineering education.
+
+## 🎓 Concluding Remarks by HOD
+- Motivated students to stay curious and disciplined.
+- Summarized the importance of day’s sessions for future learning.
