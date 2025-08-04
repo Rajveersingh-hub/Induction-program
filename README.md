@@ -32,7 +32,7 @@ Big thanks to all the faculty members, guests, and organizers for making our fir
 
 Looking forward to the rest of the induction program and my journey at GNDEC! 💻🎓
 
-### Day 2 (1 August 2025)
+# Day 2 (1 August 2025)
 
 The second day of the induction program began with two proficiency tests:
 
@@ -46,7 +46,7 @@ After a short break, the following sessions were conducted in the auditorium:
 
 The day concluded with a motivating address by the **HOD of Applied Sciences**, who emphasized the importance of attending regular classes and actively participating in college programs.
 
-# Day 3 - Induction Program
+# Day 3(2 Augest 2025)
 
 **Time:** 8:30 AM to 1:30 PM
 
