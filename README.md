@@ -67,3 +67,61 @@ The day concluded with a motivating address by the **HOD of Applied Sciences**, 
 ## 🎓 Concluding Remarks by HOD
 - Motivated students to stay curious and disciplined.
 - Summarized the importance of day’s sessions for future learning.
+
+# 🌟 Day 4 – Induction Program Report
+
+## 📘 English Lecture – Communication Skills
+The day began with an insightful lecture on **Communication Skills**.  
+We learned about the fundamentals of effective communication, including:
+- Verbal and non-verbal communication
+- Listening skills
+- Importance of clarity and confidence while expressing ideas  
+This session emphasized how communication plays a vital role in academics, personal life, and future professional environments.
+
+---
+
+## 🧪 Chemistry Lecture – Chemistry in Daily Life
+Next, our Chemistry teacher delivered a lecture on **"How Chemistry is Related to Day-to-Day Life."**  
+The session included:
+- Real-life examples of chemical reactions
+- Importance of chemistry in cooking, cleaning, medicines, and even emotions
+- Understanding the connection between basic chemical concepts and daily experiences  
+This helped us appreciate the practical applications of chemistry beyond the classroom.
+
+---
+
+## ☕ Break
+After the first two sessions, we had a **1-hour break** for relaxation and refreshment.
+
+---
+
+## 🌱 Universal Human Values – Part 2 by Dr. Priyadarshni
+After the break, we attended the second part of the **Universal Human Values** session, conducted by **Ms. Priyadarshni**.  
+Key takeaways included:
+- Importance of empathy, respect, and harmony
+- Developing a positive mindset and responsible behavior
+- Reflecting on moral and ethical values in personal and social contexts
+
+This session encouraged self-reflection and personal growth, aligning values with our actions.
+
+---
+
+## 💻 Cosmic Club Session – Laptop Awareness
+The day concluded with a session conducted by the **Cosmic Club**.  
+This lecture provided **useful knowledge about laptops**, including:
+- Understanding the basic components (CPU, RAM, storage, etc.)
+- Tips for laptop care and maintenance
+- Guidance on using laptops effectively for educational and professional purposes
+
+It was a highly practical session, especially helpful for students new to digital learning tools.
+
+---
+
+## ✅ Summary
+Day 4 of the induction program was a blend of:
+- Academic learning (English and Chemistry)
+- Personal development (Universal Human Values)
+- Technical awareness (Laptop knowledge via Cosmic Club)
+
+Each session contributed to our holistic growth, making it a productive and enlightening day.
+
