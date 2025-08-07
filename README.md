@@ -125,3 +125,17 @@ Day 4 of the induction program was a blend of:
 
 Each session contributed to our holistic growth, making it a productive and enlightening day.
 
+## Day - 5 (Induction Program)
+
+**1. Maths Lecture**  
+The day started with a Mathematics lecture. The teacher explained the syllabus and how maths will help us in solving real-life and higher-level problems in engineering.
+
+**2. P2P Lecture (C++ Basics)**  
+After maths, we had a P2P (Peer-to-Peer) session. In this, our seniors taught us some basics of C++. They explained the importance of learning programming and how it will help in our technical journey.
+
+**3. BEEE Lecture**  
+Then we attended the BEEE (Basic Electrical and Electronics Engineering) lecture. The professor gave us the study scheme and syllabus. He also explained how BEEE is connected to our branch and its use in real life.
+
+---
+
+The day ended with a good understanding of our subjects and how they are related to our future goals.
